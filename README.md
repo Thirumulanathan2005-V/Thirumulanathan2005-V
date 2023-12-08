@@ -1,2 +1,2 @@
 - Hi, I’m @Thirumulanathan>V
-- How to reach me thirumulanathan2005v@gmail.com
+- reach me by thirumulanathan2005v@gmail.com
